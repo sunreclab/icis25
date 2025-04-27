@@ -1,3 +1,3 @@
-Anonymous submissions for www25.
+Anonymous submissions for icis25.
 
 Detials coming soon.
